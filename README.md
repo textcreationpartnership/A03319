@@ -37,18 +37,658 @@ This keyboarded and encoded edition of the
 
 #####Front#####
 
+1. ¶ Prohemye
+
+1. ¶ The Table
+SYth the tyme that the grete and high tour of babilone was bylded •en haue spoken with dyuerse tonge
+1. ¶ The Epystle of sir Iohan Treuisa chapelayn vnto lord Thomas of Barkley vpon the translacion of Polycronycon in to our Englysshe tongue
+¶ Prolicionycion ¶ Prefacio prima ad historiam ¶ Capitulum primum / AFter solempne and wyse wryters 
+    _ ¶ Prolicionycion ¶ Prefacio prima ad historiam ¶ Capitulum primum / 
+
+    _ ¶ Prefacio secunda ad historiam
+
+    _ ¶Prefacio tercia ad historiam ¶ Capitulum· Tercium
+
 #####Body#####
+¶ Cronica Ranulphi Cistrensis Monachi De orbis dimensione prescianus in Cosmagraphia ¶ Capitulum qui
+    _ ¶ Cronica Ranulphi Cistrensis Monachi De orbis dimensione prescianus in Cosmagraphia ¶ Capitulum quintum
 
-1. ¶De palacijs Rome
+    _ ¶ De orbis diuisione / Augustinus de cinitate dei libro sexto capitulo / Octauo ¶ Capitulum Sextum
 
-1. ¶ De varia insule nuncupacione
+    _ De parcium orbis descripcione· plenius liliro sexto· prescianus in Cosmagraphia ¶ Capitulum septimum
 
-1. ¶ Committatur exequias
+    _ ¶ De mari magno medio siue mediterraneo Plenius libro 3o. capitulo primo· ¶ Capitulum octauuin
 
-1. ¶ Augustinus de ciuitate dei·
+    _ ¶ De Occeano / ysidorus libro 13o. ¶ Capituluin nouum
+
+    _ ¶ De prouyncijs orbis / Et primo de Paradiso. ¶ Capitulum decimum
+
+    _ ¶ De Asia & prouincijs eius. Ysidorus libo. / 14 ¶ Capitulum vndecimum
+
+    _ ¶ Capitulum duodecimum ¶ De parchia Ysid libro. 14
+
+    _ ¶De assiri•s ysid libro .14 ¶ Capitulum / 13 /
+
+    _ ¶De Regione Iudee
+
+¶ Capitulum / 14
+
+    _ ¶ Capitulum / 15.
+
+    _ ¶ Capitulum / 16 /
+
+    _ ¶ Capitulum. 17 /
+
+    _ ¶ Capitulum· 18 /
+
+    _ ¶De Affryca et eius prouyncijs ysid libro 14 Capitulum / 19
+
+    _ ¶ Capitulum 20·
+
+    _ ¶De Europa et eius partibus ¶ Capitulum 21
+
+    _ ¶ Degrecia et eius prouincijs. ¶ Capitulum 22
+
+    _ ¶ Capitalum / 23 /
+
+    _ ¶De vrbe Romana ¶ Capitulum. xxiiij
+
+      * ¶De palacijs Rome
+
+    _ ¶ De quibusdam Romanorum institutis et obseruancijs ysidorus eth libro octodecimo. capitulo de triumphis et hug capitulo tris. ¶ Capitulum / 25
+
+    _ ¶ De Germania / et eius prouyncijs / ysid / ech̄ / 14 ¶ ca / 26.
+
+    _ ¶ De Gallia et / Francia R / ¶ Capitulum. 27
+
+    _ ¶ De Aquitania / Capitulum. 28
+
+    _ ¶De Hispania / Trogus libro vltimo and ysidorus libro auinto decimo / ¶ Capitulum / 29
+
+    _ ¶De Insulis maris. magni ¶ Capitulum. 30
+
+    _ ¶De Iusulis Occeani / Ysidorus libro quinto ¶Capo. 31
+
+    _ ¶ De hybernia •• ¶ Capitulum 32
+
+    _ ¶ De Incolis prioribus ¶ Capitulum 33
+
+    _ ¶ De Incolarum moribus Solynus· ¶ Capitulum / 34
+
+    _ ¶ De locorum prodigijs· Giraldusꝰ Merueylles of Irlond / ¶ Capitulum / 35
+
+    _ ¶De preconijs sanctorum / ¶ Capitulum 36
+
+    _ ¶ De Scocia ¶ Capitulum / 37
+
+    _ ¶ De wallia
+
+    _ ¶De britannia ¶ Capitulum 39
+
+      * ¶ De varia insule nuncupacione
+
+    _ ¶ De situ eius et dimensione. plenius libro secundo capitulo. 77 ¶ Capitulum 40
+
+    _ ¶ De prerogatiuis huius insule attollendis / gir in top / ¶ Capitulum 41 /
+
+    _ ¶De mirabilibus in ea stupendis Solynus· Capitulum. 42
+
+    _ ¶De partibus brytannye principalibus ¶ Capitulum 34
+
+    _ ¶ De Insulis britannye adiacentibus ¶ Capitulum 44
+
+    _ ¶ De platris regalibus Ganfe ¶ Capitulum. 45
+
+    _ ¶ De famosis fluminibus Alfr ¶ Capitulum 46 /
+
+    _ ¶ De Antiquis vrbibus beda libro primo capitulo primo. ¶ Capitulum .47
+
+    _ ¶Willelmus de pon / libro tercio. ¶ Capitulum .48
+
+    _ ¶ De shiris Anglie siue prouyncijs / ¶ Capitulum 49
+
+    _ ¶De Legibus legumque vocabulis ¶ Capitulum 50
+
+    _ ¶ De Regnis regnorumque lymitibus ¶ Capitulum 51
+
+    _ ¶De episcopatibus et sedibus / Alfr ¶ Capitulum. 52
+
+    _ ¶ De Episcopis occidentalibus. Willelmus ¶ Capitulum 53
+
+    _ ¶ De Orientalibus episcopis willelmus ¶ Capitulum 54
+
+    _ ¶ De Episcopis merciorum· Willelmus / ¶ Capitulum 55
+
+    _ De episcopis northūbranis W· de pon. li· 4 ca / 11· Capitulum / 56
+
+    _ ¶ Capitulum 57
+
+    _ DA quot quando et quibus inhabita ta •it gentibus ¶ Capitulum 58
+
+    _ ¶ De Incolarum Anguis ¶ Capitulum 59
+
+    _ ¶ De gentis huius moribus ¶Gir in itinere. Capitulum· 60
+
+1. ¶ Liber secundus.
+
+    _ ¶Cao. pio. /
+
+    _ ¶ Capitulum. secundum
+
+    _ ¶ Capitulum tercium
+
+    _ ¶ Capitulum / 4
+
+    _ ¶ Capitulum 5
+
+    _ ¶ Capitulum sextum
+
+    _ ¶ Capitulum / 7
+
+    _ ¶ Regnum Shitarum ¶ Capitulum Octauum / 
+
+    _ ¶ Capitulum nonum:
+
+    _ ¶Genesis ¶ Capitulum 10
+
+    _ ¶ Isaac Capitulum vndecimum
+
+    _ ¶ Iacob· ¶Capitulum duodecimum
+
+    _ ¶ Moyses ¶ Capitulum 13
+
+    _ ¶ Moyses / Aaron ¶ Capitulum 14
+
+    _ ¶ Sequitur Capitulum 15.
+
+    _ ¶ Othonyel ¶ Capitulum 16
+
+    _ ¶ Aioth ¶ Capitulum ••
+
+    _ ¶Eusebius in Cronyca ¶ Aioth ¶ Capitulum / 18
+
+    _ ¶ Augustinus de ciuitate dei libro / 18. c. 13 / ¶ Delbora ¶ Capitulum / 19
+
+    _ ¶Gedyon ¶ Capitulum 20
+
+    _ ¶ Abymalech Thola / ¶ Capitulum 21
+
+    _ ¶ Iair ¶ Capitulum 22
+
+    _ Iepte ¶ Capitulum 23
+
+    _ ¶Abessa / ¶ Capitulum 24
+
+    _ ¶ Aylon ¶ Abdon ¶ Capitulum 25
+
+    _ ¶ Abdon ¶ Capitulum 26
+
+    _ ¶ Hely ¶ Samuel ¶ Capitulum 27
+
+    _ ¶ Saul ¶ Capitulum 28
+
+    _ ¶ Dauyd ¶ Salamon ¶ Capitulum 29
+
+    _ ¶ Roboas ¶Abdyas ¶ Asa Capitulum 30
+
+    _ ¶ Amasias ¶ Capitulum 31
+
+    _ ¶ Ioathan ¶ Capitulum 32.
+
+    _ ¶ Achas ¶ Capitulum 33
+
+    _ ¶ Manasses ¶ Capitulum ••
+
+    _ ¶ Ezechias ¶ Capitulum 34
+
+    _ ¶ Nabugodonosor ¶ Capitulum 36
+
+1. ¶Incipit Liber tercius
+
+    _ ¶ Capitulum secundum / 
+
+    _ ¶ Capitulum 3
+
+    _ ¶ Capitulum quartum
+
+    _ ¶ Capitulum 5
+
+    _ ¶ Eutropius ¶ Capitulum 6
+
+    _ ¶ Capitulum 7
+
+    _ ¶Capitulum 8
+
+    _ ¶ Capitulum 9
+
+    _ ¶ Capitulum 10
+
+    _ ¶ Capitulum 11
+
+    _ ¶ Capitulum 12
+
+    _ ¶ Capitulum 13
+
+    _ ¶ Capitulum 14
+
+    _ ¶ Sequitur Capitulum 15
+
+    _ ¶ Capitulum 16
+
+    _ ¶ Capitulum 17
+
+    _ ¶ Capitulum 18·
+
+    _ ¶ Capitulum 19
+
+    _ ¶ Capitulum 20
+
+    _ ¶ Capitulum 21
+
+    _ ¶ Capitulum 22
+
+    _ ¶ Capitulum 23
+
+    _ ¶ Capitulum 27
+
+    _ ¶ Eutropius ¶ Capitulum 25
+
+    _ ¶ Capitulum 26
+
+    _ ¶ Capitulum 27
+
+    _ ¶ Capitulum 28
+
+    _ ¶ Capitulum 29
+
+    _ ¶ Capitulum 30
+
+      * ¶ Committatur exequias
+
+    _ ¶ Capitulum 31
+
+    _ ¶Capitulum 32
+
+    _ lud cassibelanus and nemius Petrus capitulo 200
+
+    _ ¶ Capitulum 33
+
+    _ ¶ Capitulum 34
+
+    _ ¶ Capitulum 35
+
+    _ ¶ Petrus 213 ¶ Capitulum 36
+
+    _ ¶ Capitulum 37
+
+    _ ¶ Sequitul capitulum 38
+
+    _ ¶ Capitulum 39
+
+      * ¶ Augustinus de ciuitate dei·
+
+    _ ¶ Capitulum 40
+
+    _ ¶ Capitulum 41
+
+    _ ¶ Capitulum 42
+
+    _ ¶ Capitulum 43
+
+    _ ¶ Capitulum 44
+
+1. ¶ Incipit Liber quartus
+OCtauianus Augustus bygan to regne in marche / In the begynnyng of his xlij yere in the yere of hero
+    _ ¶Sequitur Capitulum secundum
+
+    _ ¶ Capitulum tercium
+
+    _ ¶ Capitulum quartum
+
+    _ ¶ Capitulum quintum
+
+    _ ¶ Capitulum sextum
+
+    _ ¶ Sequitar Capitulum septimum
+
+    _ ¶Capitulum Octauum
+
+    _ ¶ Capitulum 9
+
+    _ ¶ Capitulum 10
+
+    _ ¶ Capitulum 12
+
+    _ ¶ Capitulum 12
+
+    _ ¶ Capitulum 13
+
+    _ ¶ Capitulum 14
+
+    _ ¶ Capitulum 15
+
+    _ ¶ Capitulum 16
+
+    _ ¶ Capitulum 17
+
+    _ ¶ Capitulum 18
+
+    _ Sequitur Capitulum 19
+
+    _ ¶ Capitulum 20
+
+    _ ¶ Capitulum 21
+
+    _ Capitulum 22
+
+    _ ¶ Capitulum 23
+
+    _ ¶ Capitulum 24
+
+    _ ¶ Capitulum 25
+
+    _ ¶ Capitulum 26
+
+    _ ¶ Capitulum 27
+
+    _ ¶ Capitulum 28
+
+    _ ¶ Capitulum 29
+
+    _ ¶Capitulum 30
+
+    _ ¶ Capitulum 31
+
+    _ ¶ Capitulum 32
+
+    _ ¶ Capitulum 33
+
+1. Incipit libe• quintus
+
+    _ ¶Capitulum primum
+
+    _ ¶ Capitulum 2
+
+    _ ¶ Capitulum tercium
+
+    _ ¶ Capitulum quartum
+
+    _ ¶ Capitulum quintum
+
+    _ ¶ Capitulum sextum
+
+    _ ¶ Capitulum septimum
+
+    _ ¶ Capitulum Octauum
+
+    _ ¶ Capitulum nonum
+
+    _ ¶ Capitulum decimum
+
+    _ ¶ Capitulum 11
+
+    _ ¶ Capitulum duodecimum / 
+
+    _ ¶ Capitulum 13
+
+    _ ¶Capitulum / 14
+
+    _ ¶ Capitulum 15 /
+
+    _ ¶ Capitulum 16 /
+
+    _ ¶ Capitulum 17
+
+    _ ¶ Capitulum 18.
+
+    _ ¶ Capitulum 19
+
+    _ ¶ Capitulum 20
+
+    _ ¶ Capitulum 21 /
+
+    _ ¶ Capitulum 22·
+
+    _ ¶Capitulum 23
+
+    _ ¶ Capitulum 24.
+
+    _ ¶ Capitulum 25
+
+    _ ¶ Capitulum 26
+
+    _ ¶ Capitulum 27.
+
+    _ ¶Capitulum 28 /
+
+    _ ¶ Capitulum 29
+
+    _ ¶ Capitulum 30
+
+    _ ¶ Sequitur capitulum 31
+
+    _ ¶ Capitulum 32 /
+
+    _ ¶ Capitulum 33
+
+1. ¶ Incipit Liber sextus
+
+    _ ¶ Capitulum primum / 
+
+    _ ¶ Capitulum secundum / 
+
+    _ ¶ Capitulum 3 /
+
+    _ ¶ Capitulum 4 /
+
+    _ ¶ Capitulum quintum
+
+    _ ¶ Capitulum sextum
+
+    _ Capitulum 7
+
+    _ ¶ Capitulum Octauum / 
+
+    _ ¶ Capitulum nonum
+
+    _ ¶ Capitulum / 10 /
+
+    _ ¶ Capitulum 11
+
+    _ ¶ Capitulum 12
+
+    _ ¶ Capitulum 13
+
+    _ ¶ Capitulum 14
+
+    _ ¶ Capitulum 15
+
+    _ ¶ Capitulum 16
+
+    _ Capitulum 17 /
+
+    _ ¶ Capitulum 18 /
+
+    _ ¶ Capitulum 19 /
+
+    _ ¶ Capitulum 20
+
+    _ ¶ Capitulum xij / 
+
+    _ ¶ Capitulum / 22
+
+    _ ¶ Capitulum 23
+
+    _ ¶ Capitulum 24
+
+    _ ¶ Capitulum 25
+
+    _ ¶ Capitulum 26
+
+    _ ¶ Capitulum 27
+
+    _ ¶ Capitulum 28
+
+    _ ¶ Capitulum 29
+
+1. ¶Incipit Liber septimus
+
+    _ ¶ Capitulum primum
+
+    _ ¶ Capitulum secundum
+
+    _ ¶ Capitulum tercium
+
+    _ ¶ Capitulum quartum / 
+
+    _ ¶ Capitulum 5
+
+    _ ¶ Capitulum sextum / 
+
+    _ ¶Capitulum 7
+
+    _ ¶ Capitulum 8
+
+    _ ¶ Capitulum 9
+
+    _ ¶ Capitulum 10 /
+
+    _ ¶ Capitulum 11
+
+    _ ¶ Capitulum 12
+
+    _ ¶ Capitulum 13
+
+    _ ¶ Capitulum 14 /
+
+    _ ¶ Capitulum 15
+
+    _ ¶ Capitulum 16 /
+
+    _ ¶ Capitulum 17 /
+
+    _ ¶ Capitulum 19
+
+    _ ¶ Capitulum 20
+
+    _ ¶ Capitulum 21
+
+    _ ¶ Capitulum 22
+
+    _ ¶ Capitulum 23
+
+    _ ¶ Capitulum 24
+
+    _ ¶ Capitulum 24
+
+    _ ¶ Capitulum 26▪
+
+    _ ¶ Capitulum 27
+
+    _ ¶ Capitulum 28
+
+    _ ¶ Capitulum 29
+
+    _ ¶ Capitulum 30 /
+
+    _ ¶ Capitulum 31
+
+    _ ¶ Capitulum 32
+
+    _ ¶ Capitulum 33
+
+    _ ¶ Capitulum 34 /
+
+    _ ¶ Capitulum 35
+
+    _ ¶ Capitulum 36
+
+    _ ¶ Capitulum 37
+
+    _ ¶ Capitulum 38 /
+
+    _ ¶ Capitulum 39
+
+    _ ¶ Capitulum 40
+
+    _ ¶ Capitulum 41
+
+    _ ¶Capitulum 42
+
+    _ ¶ Capitulum 43 /
+
+    _ ¶ Capitulum 44
+
+1. ¶ Incipit Liber vltimus
+
+    _ ¶ Capitulum Primum
+
+    _ ¶ Capitulum secundum / 
+
+    _ ¶ Capitulum Tercium
+
+    _ ¶ Capitulum quartum
+
+    _ ¶ Capitulum 5
+
+    _ ¶ Capitulum sextum / 
+
+    _ ¶ Capitulum Septimum / 
+
+    _ ¶ Capitulum Octauum
+
+    _ ¶ Capitulum 9
+
+    _ ¶ Capitulum decimum
+
+    _ ¶ Capitulum xi
+
+    _ ¶ Capitulum Duodecimum
+
+    _ Capitulum xiij
+
+    _ ¶ Capitulum 14
+
+    _ ¶ Capitulum xv
+
+    _ ¶ Capitulum xvj
+
+    _ ¶ Capitulum 17
+
+    _ ¶Capitulum xviij
+
+    _ ¶ Capitulum 19
+
+    _ ¶ Capitulum visesimum / 
+
+    _ ¶ Capitulum 21
+
+    _ ¶ Capitulum 22
+
+    _ ¶ Capitulum 23 /
+
+    _ ¶ Capitulum 24
+
+    _ ¶ Capitulum 24
+
+    _ ¶ Capitulum 26
+
+    _ ¶ Capitulum 27
+
+    _ ¶Capitulum 28
+
+    _ Capitulum 29
+
+    _ ¶ Capitulum Trisesimum
+
+    _ ¶ Capitulum Trisesimum Primum·
+
+    _ ¶ Capitulum 32
+
+    _ ¶ Capitulum Trisesimum Tercium / 
 
 #####Back#####
-Prolicionycion [sic]Polycronicon. EnglishHigden, Ranulf, d. 1364.1482Approx. 2504 KB of XML-encoded 
+And here I make an ende of this lytel werke as nygh as I can fynde after the forme of the werk to fo
 **Types of content**
 
   * There are 489 **verse** lines!
